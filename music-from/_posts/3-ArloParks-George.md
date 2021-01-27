@@ -4,7 +4,7 @@ title: "George by Arlo Parks"
 excerpt:
     "My friend Jai likes George by Arlo Parks"
 coverImage: "https://is3-ssl.mzstatic.com/image/thumb/Music123/v4/a3/71/55/a3715527-10b5-5bb8-f5ea-b621780581ec/804076033739.jpg/1000x1000bb.webp"
-date: "01/04/2021"
+date: "01/27/2021"
 author:
     name: My Friend Jai
     twitter: "https://twitter.com/MyFriendJai"
