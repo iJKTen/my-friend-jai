@@ -19,6 +19,6 @@ I promise, I don't find artists because they are from U.K or raised in the U.K b
 
 Celeste fell in love with Aretha Franklin, Billie Holiday, Ella Fitzgerald, the Supremes, Destiny's Child, and Solange. Her father passed away when she was 16 and, years later when she happened upon his old vinyl collection, she immersed herself in the wealth. Her personal poetry evolved into song and, by the time she was enrolled in college, she made the decision to pursue music.
 
-My love for instrumental and shill music aside, I do like artists with their own personal poetry.
+My love for instrumental and chill music aside, I do like artists with their own personal poetry.
 
 Click [here](//www.youtube.com/watch?v=IsyDwRFpPkM) to listen to the song.
